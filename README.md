@@ -1,1 +1,1 @@
-# parcial-T2
+# parcial-T2 KEVIN CUITIVA JUAN DAVID SILVA
